@@ -23,13 +23,21 @@
 
 •⁠  ⁠🤝 ¿Cómo puedo contactarlos?
 •  A través de nuestras redes sociales, correos electrónicos, página web o número telefónico:
+
 • 📷 Instagram: https://instagram.com/programmpath
+
 • 🫂 Facebook: https://www.facebook.com/programmpath
+
 • 📹 TikTok: https://tiktok.com/@programmpath
+
 • 🖋️ LinkedIn: https://www.linkedin.com/company/programm-path
+
 • 🧑‍💻 Página web: https://www.programmpath.com
+
 • 📲 Número teléfono: ‪+52 81 3609 6097‬
+
 • 📩 Correos electrónicos:
+
   + joaquin.lopez@programmpath.com
   + sofia.reyes@programmpath.com
 
@@ -57,12 +65,20 @@
 
 •⁠ ⁠🤝 How can I contact you?
 •⁠ ⁠Through our social media, email, website, or phone number:
+
 • 📷 Instagram: https://instagram.com/programmpath
+
 • 🫂 Facebook: https://www.facebook.com/programmpath
+
 • 📹 TikTok: https://tiktok.com/@programmpath
+
 • 🖋️ LinkedIn: https://www.linkedin.com/company/programm-path
+
 • 🧑‍💻 Website: https://www.programmpath.com
+
 • 📲 Phone number: ‪+52 81 3609 6097‬
+
 • 📩 Emails:
+
   + joaquin.lopez@programmpath.com
   + sofia.reyes@programmpath.com
